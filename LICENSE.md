@@ -1,4 +1,4 @@
-# 
+# rare DaVinci Resolve for PC | DaVinci Resolve for Windows Effect | color-grading + real-time-preview offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for Windows
 
 
 
